@@ -1,0 +1,2 @@
+# PaushalPal
+EU citizens need to prove financial ressources equivalent to approximately 60,000 Swiss francs a year or more (equivalent to $54,000 or EUR 41,000 or £38,000). To qualify for this program, you cannot be working in Switzerland. We can negotiate an arrangement with the Swiss tax authorities that makes it possible to retain some activity outside Switzerland, such as sitting on a company board, providing consultancy services or writing books, but you cannot work daily. Being a resident means that you are expected to actually live in Switzerland for the greater par
